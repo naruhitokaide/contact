@@ -14,4 +14,4 @@ Skype: https://join.skype.com/invite/wDpwy4t21eVg
 
 Telegram https://t.me/KDominus
 
-Email: kodakatsuro@gmail.com
+Email: kodakatsuro@gmail.com.
