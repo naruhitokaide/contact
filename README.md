@@ -12,6 +12,6 @@ Slack: kodakatsuro@gmail.com
 Skype: https://join.skype.com/invite/wDpwy4t21eVg
 
 
-Telegram https://t.me/KDominus
+Telegram https://t.me/kodakatsuro
 
 Email: kodakatsuro@gmail.com
