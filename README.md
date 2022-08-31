@@ -11,6 +11,7 @@ Slack: `kodakatsuro@gmail.com`
 
 Skype: `https://join.skype.com/invite/wDpwy4t21eVg`
 
+Discord: `https://discord.gg/43FU8bau`
 
 Telegram `https://t.me/kodakatsuro`
 
