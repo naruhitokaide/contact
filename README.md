@@ -3,15 +3,15 @@
 ### Please contact me for more details. Let's discuss more for your project.
 
 
-Google Chat: kodakatsuro@gmail.com
+Google Chat: `kodakatsuro@gmail.com`
 
 
-Slack: kodakatsuro@gmail.com
+Slack: `kodakatsuro@gmail.com`
 
 
-Skype: https://join.skype.com/invite/wDpwy4t21eVg
+Skype: `https://join.skype.com/invite/wDpwy4t21eVg`
 
 
-Telegram https://t.me/kodakatsuro
+Telegram `https://t.me/kodakatsuro`
 
-Email: kodakatsuro@gmail.com
+Email: `kodakatsuro@gmail.com`
